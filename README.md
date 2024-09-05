@@ -3,6 +3,16 @@
 
 <div align="center">
 
+<img src=https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/image.png width="220" height="220">
+</div>
+
+<div align="center">
+
+└───────── •✧• ─────────┘
+</div>
+
+<div align="center">
+
 ![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d3i3gft-e7a2af44-7e51-4e00-b17b-769e5738a21a.gif)
 ![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d4n4irf-fe574c78-dde2-4656-9303-deedec2b9143.png)
 ![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d35absp-f8eddc64-c73b-498f-9570-2d384826ef73.png)
@@ -29,7 +39,7 @@
 
 <div align="center">
 
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d7shcgw-dd258f8a-1efa-4dd5-ab25-e202b4ef1677.png)
+![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/576541e6e9f6ea3f06334f645ed3270d14d3caad.gif)
 </div>
 
 <div align="center">
