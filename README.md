@@ -13,17 +13,17 @@
 
 <div align="center">
 
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d3i3gft-e7a2af44-7e51-4e00-b17b-769e5738a21a.gif)
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d4n4irf-fe574c78-dde2-4656-9303-deedec2b9143.png)
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d35absp-f8eddc64-c73b-498f-9570-2d384826ef73.png)
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d35abxe-bb534fab-0e11-4425-9a02-c452bb8396d6.png)
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/d7df1ci-bfd5eac6-9bd2-4d3b-b00e-1bc3b75e2a16.png)
-![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/day5oi7-f0daff74-e67b-4c05-9d66-9c717b5d437a.png)
+![image](https://files.catbox.moe/7sxcol.gif)
+![image](https://files.catbox.moe/1abztm.png)
+![image](https://files.catbox.moe/5r5776.png)
+![image](https://files.catbox.moe/6cn9m2.png)
+![image](https://files.catbox.moe/7zex6u.png)
+![image](https://files.catbox.moe/ah06yd.png)
 </div>
 
 <div align="center">
 
-✦
+![image](https://files.catbox.moe/1xt97x.gif)
 </div>
 
 <div align="center">
@@ -51,4 +51,6 @@
 ⇉ 𝘗𝘦𝘳𝘴𝘰𝘯𝘢
 
 ⇉ 𝘏𝘦𝘭𝘭𝘰 𝘊𝘩𝘢𝘳𝘭𝘰𝘵𝘵𝘦
+
+![image](https://files.catbox.moe/lyswfh.webp)
 </div>
