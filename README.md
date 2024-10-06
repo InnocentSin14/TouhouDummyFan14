@@ -34,6 +34,10 @@
 𝘈𝘤𝘵𝘶𝘢𝘭𝘭𝘺, 𝘪𝘮 𝘴𝘦𝘢𝘳𝘤𝘩𝘪𝘯𝘨 𝘴𝘰𝘮𝘦 𝘛𝘰𝘶𝘩𝘰𝘶 𝘧𝘢𝘯𝘴 𝘪𝘯 𝘗𝘰𝘯𝘺 𝘛𝘰𝘸𝘯. S𝘰 𝘱𝘭𝘦𝘢𝘴𝘦, 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘴𝘤𝘢𝘳𝘦𝘥 𝘵𝘰 𝘵𝘢𝘭𝘬 𝘸𝘪𝘵𝘩 𝘮𝘦!
 </div>
 
+<p align="center"> 
+<a href="https://dummyfan14.straw.page/">sign my strawpage ^_^ !!</a>
+</p>
+
 <div align="center">
 
 ![image](https://github.com/TouhouDummyFan14/TouhouDummyFan14/blob/main/576541e6e9f6ea3f06334f645ed3270d14d3caad.gif)
